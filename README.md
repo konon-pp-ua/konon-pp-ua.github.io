@@ -1,1 +1,0 @@
-# konon-pp-ua.github.io
